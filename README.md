@@ -7,4 +7,8 @@ haydut mahzeni is:
 - great! so so great!
 - funds israel! very fun!
 - coded by me! so fun!
+- play right now! yes now!
 
+[Discord](https://discord.com/invite/KzC4CsggTF) - [Website](https://haydutmahzeni.xyz/)
+
+dumbass counter ---> ![](https://komarev.com/ghpvc/?username=amnotakidnapper)
