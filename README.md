@@ -9,6 +9,6 @@ haydut mahzeni is:
 - coded by me! so fun!
 - play right now! yes now!
 
-[Discord](https://discord.com/invite/KzC4CsggTF) - [Website](https://haydutmahzeni.xyz/)
+[Discord](https://discord.com/invite/KzC4CsggTF) - [Website](https://haydutmahzeni.xyz/) - [Strengthen Relations](https://www.aipac.org/)
 
 dumbass counter ---> ![](https://komarev.com/ghpvc/?username=amnotakidnapper)
